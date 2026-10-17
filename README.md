@@ -1,0 +1,1 @@
+# Mizoram-Landslide-Risk-Model
